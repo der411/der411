@@ -1,7 +1,5 @@
-## Hi there 👋
+![Bannière](https://live.staticflickr.com/65535/53992840786_df496637be_n.jpg)
 
-Je suis Vincent Vaïtilingom ! Bienvenue sur ma page 🙂
+N'hésitez pas à vous connecter à mon [LinkedIn](https://www.linkedin.com/in/vincent-vgom/) 👍🙂
 
-N'hésitez pas à vous connecter à mon [LinkedIn](https://www.linkedin.com/in/vincent-vgom/) 👍
 
-Bonne visite 🚀
