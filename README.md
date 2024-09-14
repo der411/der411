@@ -1,4 +1,4 @@
-## Développeur Web Front-end 💻
+## Développeur Web 💻
 
 ![Animation de démonstration](https://res.cloudinary.com/dwcdxkpfk/image/upload/v1726266632/Hi_There_1_qnviub.gif)
 
