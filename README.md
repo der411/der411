@@ -4,6 +4,6 @@
 
 
 N'hésitez pas à vous connecter à mon [LinkedIn](https://www.linkedin.com/in/vincent-vgom/)
-ou prendre un rdv d'entretien sur mon [Calendly](https://calendly.com/vincentvaiti/30min) 👍🙂
+ou prendre un rdv d'entretien ou pour discuter de développement sur mon [Calendly](https://calendly.com/vincentvaiti/30min) c'est grauit 👍🙂
 
 
